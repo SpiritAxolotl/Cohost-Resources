@@ -1,0 +1,1 @@
+<!--planning on adding (WITH PERMISSION) @mynotaurus's and @werewolfbarista's character text box templates-->
